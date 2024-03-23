@@ -12,8 +12,8 @@ Envisioned with the task of bringing Real life Blockchain utilities to the Every
 2. Clothing and Fashion
 3. Real Estate and Accommodation
 4. Blockchain and General Education 
-Setting this as a Decade Goal he races with this vision till 2033!
 
+Setting this as a Decade Goal he races with this vision till 2033!
 He is Business minded and has a great and responsible attitude towards work.
 He would love to connect with you. 
 Thank you.🤝
