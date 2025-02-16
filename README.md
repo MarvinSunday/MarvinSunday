@@ -1,20 +1,11 @@
 ### Hi there 👋
 
-Marvin Sunday is an inquisitive, resourceful, and creative person. He is attracted to Innovations and Modern day Technological Discoveries. 
-He also holds strong his religious, cultural, political, and technical views but never shuts the door to changes as he considers himself to be a dynamic man.
+Marvin Sunday is an inquisitive, resourceful, and innovative technology professional who thrives at the intersection of blockchain technology and business development. With a dynamic mindset that balances strong religious, cultural, political, and technical views, he remains open to evolving perspectives and emerging opportunities in the rapidly changing digital landscape.
 
-Seasoned with experiences and knowledge in Digital Market strategies most especially in Cryptocurrency and Blockchain technology Industry. He can be seen as an effective Blockchain Business Developer along side his Cryptowriting skills. He's a Solidity Developer focused on building Real World and DePIN Applications/Protocols.
+Seasoned in digital market strategies, particularly in the cryptocurrency and blockchain technology sectors, Marvin has established himself as an effective Blockchain Business Developer. His expertise spans technical research, writing, and software development, with a concentrated focus on building decentralized architectures across DeFi, Onchain Governance, DePIN, and Interoperability solutions.
 
-He is also a Crypto Investor that holds assets in several Blockchains across the Crypto Ecosystem. He has partaken in many Competitions and Hackathons locally and Globally.
+Driven by a compelling vision to bring real blockchain utility platforms to everyday Africans and beyond, Marvin plans and builds businesses that radically innovate both Web2 and Web3 industries. This ambitious mission, set as a decade-long goal extending to 2033, reflects his commitment to transformative technological advancement and accessible blockchain solutions.
 
-Envisioned with the task of bringing Real life Blockchain utilities to the Everyday African directly or indirectly. He plans to build Businesses that use Blockchain technology and Cryptocurrencies to solve problems of
-1. Food & Agriculture
-2. Clothing and Fashion
-3. Real Estate and Accommodation
-4. Blockchain and General Education 
+Marvin's business-minded approach, coupled with his responsible work ethic, makes him an valuable collaborator in the blockchain space. He actively seeks connections with fellow innovators and professionals who share his passion for leveraging blockchain technology to create meaningful impact.
 
-Setting this as a Decade Goal he races with this vision till 2033!
-
-He is Business minded and has a great and responsible attitude towards work.
-He would love to connect with you. 
-Thank you.🤝
+Thank you for considering collaboration opportunities. 🤝
